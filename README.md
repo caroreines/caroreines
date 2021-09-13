@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @caroreines
+- 👀 I’m interested in aesthetic of thing
+- 🌱 I’m currently learning ux design
+- 💞️ I’m looking to collaborate as ux design in fashion industries
+- 📫 How to reach me @caroreines
+- I am just a regular millennial stereotype that adopt a rescue dog.
